@@ -1,2 +1,2 @@
-# wiki
-The own wiki
+# WIKI
+Welcome to Fu Hao's wiki.
