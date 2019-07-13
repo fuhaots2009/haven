@@ -1,1 +1,1 @@
-This is the first page of my wiki！
+This is the first page of my wiki！Welcome :heart: 
