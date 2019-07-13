@@ -1,2 +1,2 @@
 # WIKI
-Welcome to Fu Hao's wiki.
+Welcome to Fu Hao's wiki. :heart:
