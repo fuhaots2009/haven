@@ -1,2 +1,1 @@
-# WIKI
-Welcome to Fu Hao's wiki. :heart:
+Welcome to the Home wiki!
